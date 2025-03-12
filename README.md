@@ -41,7 +41,7 @@ This project includes:
 A special thanks to **Mr. Kodi Prakash Senapati Sir** for his valuable guidance. 🙏
 
 ## 💡 Want to Explore More?
-Check out the complete analysis on GitHub: [🔗 Click Here](https://lnkd.in/d59g_Qdf)
+Check out the complete analysis on GitHub: [🔗 Click Here](www.linkedin.com/in/premkumar-pawar0709)
 
 📩 **Let's connect!** Feel free to reach out for collaborations or discussions.
 
